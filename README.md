@@ -1,3 +1,0 @@
-# Adoção Cãosciente
-
-[Descrição]
